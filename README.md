@@ -1,2 +1,5 @@
-# super-auto-pets-cheats-unlimited-gold-glitch-hacks
-Super Auto Pets Cheats unlimited gold glitch Hacks all pack unlocked PC and mobile
+# Super Auto Pets Cheats unlimited gold glitch Hacks all pack unlocked
+
+Super Auto Pets Cheats unlimited gold glitch Hacks all pack unlocked PC and mobile - The row below your lineup is what this store sells. Pets on one side and food on the other. Once you click on any of them, you will have the option to freeze them, a button that appears next to the "end" button, or unfreeze them if they have been frozen. Freezing pets and food is completely free, which can prevent them from being removed by pressing the scroll button or after the battle. This is a simple reminder that everything in the store needs 3 gold. Unless you have a squirrel in your team who only gives food discounts. Your gold now. After the battle, you will win 10 gold medals. If you get extra gold coins at the end of the turn, or you win a battle, this number will not increase. It means how much life you have. At first, you will only lose one life for every time you lose it, but every time you go to the next level, every time you lose it, you will lose more heart. The farther you go, the easier it is to lose the game.
+
+<a href="https://growhunt.top/super-auto-pets/">Get now</a>
